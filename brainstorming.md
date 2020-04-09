@@ -1,0 +1,34 @@
+- Math
+  - Playing monopoly
+    - B-roll footage of someone furiously scribbling math equations and doing calculations only to roll a simple 8 to pass go
+  - Doing math homework but instead of one calculator, many calculator (ik not funny)
+- History
+  - Watching semi-historical movies (like Jojo Rabbit)
+  - Reading news articles, "okok im studying history. Look, this is gonna be in textbooks a few years from now, im just playing the long game here"
+  - Jeopardy idea
+- English
+  - Assigned formal presentation, only puts on top for suit, bottom is in boxers
+  - Writes persuasive essay on why one should have more video game time
+- Foreign Languages
+  - Coco with subtitles
+  - Gets into intense argument with siblings, wants to swear at them, does it in spanish/korean instead
+- Science
+  - Rube Goldberg machine to get you something from the fridge
+  - Researching news articles on covid
+- Pathway
+  - Engineering - building diy face shields and masks
+  - Business - frantically worrying about the economy crashing
+  - CS - hacking neighbor&#39;s wifi network to watch movies or smth, pirating movies (woahwoahwoah thats illegal) "im in"
+  - BioMed - finds cure for COVID-19
+- VAPA
+  - Playing megalovania
+    - "Are you practicing?", "uhhh yes"
+- PE
+  - Running pacers in your hallway, sister dings cowbell after every lap
+    - Voiceover ("The 3 meter Pacer Test"), the pacer is just walking to the fridge and back repeatedly
+- ASB
+  - Virtual spirit week, but every day is pajama day
+    - Title overlay (day 1, day 2, etc) maybe like day 5 throw in crazy hair day
+    - Im having a beard day
+- APs
+  - Posters and notes and summaries surrounding desk (maybe two monitor with more notes) "i&#39;m ready"
